@@ -1,5 +1,7 @@
 ## 大坏狼系列
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://i0.wp.com/afoxswandering.com/wp-content/uploads/2021/06/the-big-bad-wolf-series-by-charlie-adhara.png?resize=750%2C333&ssl=1)
 <br>
 <br>
 
