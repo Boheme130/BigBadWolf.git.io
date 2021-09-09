@@ -83,15 +83,10 @@ Cooper父亲一个电话把Cooper拉回了家乡马里兰，同行的还有Olive
 <br/>
 <br/>
 
-## 系列二
-
-The Wolf At Bay
-
-作者：Charlie Adhara
-
-评分：5.5/5
-
-Big Bad Woolf系列最喜欢的一部
+## 系列二 The Wolf At Bay
+作者：Charlie Adhara <br/>
+评分：5.5/5 <br/>
+Big Bad Woolf系列最喜欢的一部 <br/>
 
 
 故事开始于我生活中的城市：在风景旖旎的安娜堡中心步行街💙💛💙，库博和Oliver要来调查一起花店老板洗钱案件。花！站在花店门外，库博想起了和Oliver一起看电影的夜晚。库博喜欢好莱坞爆米花片，但拥有文学phd的Oliver喜欢文艺片，一次他逼库博看某部旧版《仲夏夜之梦》，问库博是否觉得感情就像被戏剧里的那种魔法花一样，让陷入其中的人为爱盲目。
@@ -183,12 +178,10 @@ Elizabeth掩面痛哭，表示愿意认罪，库博放下了戒心，没想到El
 
 
 
-## 系列三
-
-Big Bad Wolf 3
-第三部：Thrown to the Wolves 被推入狼群 
-作者：Charlie Adhara
-评分：4.5/5
+## 系列三 Big Bad Wolf 3
+第三部：Thrown to the Wolves 被推入狼群  <br/>
+作者：Charlie Adhara <br/>
+评分：4.5/5 <br/>
 
 虐，见狼人家长，家族drama，双强恋人组合，悬疑侦探，意料外结尾，HE
 
@@ -208,17 +201,10 @@ Big Bad Wolf 3
 <br/>
 
 
-## 系列四
-
-Big Bad Wolf系列
-
-第四部：Wolf in Sheep’s Clothing 披着羊皮的狼
-
-作者：Charlie Adhara
-
-评分：4.75/5
-
-大量发糖❤️情侣活动，侦探悬疑，HE
+## 系列四 Wolf in Sheep’s Clothing
+作者：Charlie Adhara <br/>
+评分：4.75/5 <br/>
+大量发糖❤️情侣活动，侦探悬疑，HE <br/>
 
 
 狼中之王的Oliver在加拿大当着家族的面，宣誓库博才是自己的“王”(Alpha)。两人感情进一步发展并决定同居，但回到华盛顿后的同居却是另一个问题。库博不愿Oliver一直照顾自己，更不愿让富有的男友为两人同居买下豪宅，两人经济地位的失衡让库博对情感的走向倍感失落。
@@ -233,15 +219,9 @@ Big Bad Wolf系列
 
 
 
-## 系列五
-
-Big Bad Woolf系列大结局
-
-第五部：Cry Wolf 哭泣的狼
-
-作者：Charlie Adhara
-
-评分：5/5
+## 系列五 Cry Wolf 哭泣的狼
+作者：Charlie Adhara <br/>
+评分：5/5 <br/>
 
 重要前情回顾：
 A. 第三部中库博和Oliver遇到了疯狂的UCLA生物教授，她试图找出狼人的证据并公之于众，然而，教授自己也陷入了凶手狼人的追杀，她目睹老公被杀死，自己也被狼人绑架，最后库博找到了教授并把她救了出来，但库博被随即赶来的凶手追杀，教授在混战中逃走了。教授知道了狼人的存在，尽管狼人机构一直想要找回教授，但教授一直下落不明。
