@@ -5,6 +5,9 @@
 <br>
 <br>
 
+## [The Wolf at the Door](https://boheme130.github.io/WolfAtDoor.git.io/)
+
+
 ## 系列1 The Wolf at the Door
 
 人类Cooper是FBI探员，他在一次执行任务的过程中被对手开膛破肚，昏迷后被迫切除部分肠子。在恢复后，他被告知嫌疑人是狼人，同时，为了保守秘密，他被调遣到BSI，一个专门负责狼人案件的FBI机构。他的老牌搭档是人类Jefferson，两人通力合作，一起破了许多案子。
